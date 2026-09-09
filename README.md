@@ -1,0 +1,1 @@
+# Vista-Sidebar-Full-Version
